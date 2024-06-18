@@ -10,3 +10,7 @@
 fumeshia/fumeshia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+私はとても醜くて不安です
+ — もう死にたい 
+
+私は愛されたい。
