@@ -1,5 +1,5 @@
 - 🧸 Hi, I’m @fumeshia
-- 🧸 I’m interested in shoeagaze
+- 🧸 I’m interested in shoegaze
 - 🧸I’m currently learning how to die easily
 - 🧸I’m looking to collaborate on dying
 - 🧸How to reach me in hell
